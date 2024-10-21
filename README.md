@@ -2,9 +2,9 @@
 
 Free Monopoly GO—the mobile version of the classic board game that brings the excitement of buying, trading, and building empires right to your fingertips. Similar to the traditional game, progressing around the board and strategically acquiring properties relies on rolling the dice. Claim Now:
 
-[👉 CLICK HERE GET FREE](https://appbitly.com/mnopoly
+[👉 CLICK HERE GET FREE](https://appbitly.com/mnopoly]
 
-[👉 CLICK HERE GET FREE](https://appbitly.com/mnopoly
+[👉 CLICK HERE GET FREE](https://appbitly.com/mnopoly]
 
 Free rolls in Monopoly GO are crucial for advancing in the game. By logging in daily, players can gather extra rolls over time. This strategy ensures a consistent supply of dice rolls for your gameplay.
 
